@@ -1,1 +1,1 @@
-I see you 🤑🤑
+Non-verbal and semi-verbal usually
