@@ -1,3 +1,1 @@
-![a0cb0b3d00f82a7160706e8326bf709d](https://github.com/user-attachments/assets/ca6fbbb5-3fff-4cdf-b1ba-72834bf611ce)
-
-**gng i forgot how to use github ✌️**
+![tumblr_2b7c6c96181e22f6bfb2614b1af03962_7c18f26e_400](https://github.com/user-attachments/assets/3295401d-4c39-47d9-b897-cd1953838824)
