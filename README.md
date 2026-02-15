@@ -1,5 +1,5 @@
   <p align="middle"> <img src="https://komarev.com/ghpvc/?username=pinklampshade&label=WarAnchor&color=E4C052&style=flat" alt="pinklampshade" /> </p>
 
-![d67d45d00f45a8c27314c4e55e3d9e83](https://github.com/user-attachments/assets/b6a3e712-0e13-4c3b-8ff5-a33c276a703a)
+<img width="598" height="432" alt="Untitled1536_20260215092359" src="https://github.com/user-attachments/assets/ef4b6ac1-0b70-40d2-8eaf-a29c04b0dc02" />
 
 <p align="middle">acc only for pt </p>
