@@ -2,4 +2,4 @@
 
 *<p align="center">acc only for pt ㅤ(⁠个⁠_⁠个)</p>*
 
-<p align="center"> <img width="300" height="120" alt="xp (2)" src="https://github.com/user-attachments/assets/9cb72f64-4d6b-4243-8004-9cc8b06c7e15" /> </p>
+<img width="335" height="377" alt="Untitled1595_20260428065502" src="https://github.com/user-attachments/assets/f9619d9d-973b-4d31-bba4-24ed467d9481" />
