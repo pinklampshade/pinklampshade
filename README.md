@@ -35,7 +35,7 @@ ${\textsf{\color{#F0E4E5}Hands}}$ ${\textsf{\color{#819CBB}up}}$ ${\textsf{\colo
  </details>
 
  
-${\textsf{\color{#F0E4E5}  . ۫ ꣑ৎ   .  🪽 ⊹ ࣪ ˖}}$ [prns cc](https://pronouns.cc/@blackhook) ${\textsf{\color{#819CBB}／}}$ [rentry](https://rentry.co/placeholderv1)
+${\textsf{\color{#F0E4E5}  . ۫ ꣑ৎ   .  🪽 ⊹ ࣪ ˖}}$ [prns cc](https://pronouns.cc/@blackhook) ${\textsf{\color{#819CBB}／}}$ [fluffle](https://fluffle.cc/opaltine)
 
 
 <img src="https://files.catbox.moe/pu64ce.png" width="300" align="left">
